@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @I-Code-Py
+- 👋 Hi, I’m @eb
 - 👨🏻‍💻 I'm in the process of learning...
 
